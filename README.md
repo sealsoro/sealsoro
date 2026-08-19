@@ -22,5 +22,10 @@ ${\color{#C2F2D6FF}\text{DNI AT ALL: Anastasia, Zoe, Ali, problematic people, da
 <a href="https://guns.lol/playsunny">gunslol
 </a> ·
   <a href="https://soro.atabook.org">atabook !!</a> ·
-  
+ 
 <img src="https://64.media.tumblr.com/6aa35916665a032ba82ecb1aea3cb7f6/c77a857982cff2b5-a3/s1280x1920/e1fd6847b660bc9be15717834261a9f779b0c918.pnj" />
+
+<p align="center">
+ readme made by <a href="https://github.com/nyankit"> nyankit !!</a> (GIFT) ^_^
+  
+ <img src="https://64.media.tumblr.com/6aa35916665a032ba82ecb1aea3cb7f6/c77a857982cff2b5-a3/s1280x1920/e1fd6847b660bc9be15717834261a9f779b0c918.pnj" />
