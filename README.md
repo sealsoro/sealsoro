@@ -9,7 +9,7 @@
   
 ${\color{#C2F2D6FF}\text{ hi my name is soro or xes, nn are fine too. my favorite characters is Samantha Giddings, Shelly, Razzle.}}$
 <p align="center">
-  ${\color{#C2FD6FF}\text{feel free 2 int and w2i, cud freely!}}$
+  ${\color{#C2FD6FF}\text{feel free 2 int and w2i, cud freely! might resp late}}$
   
 <p align="center">
 ${\color{#C2F2D6FF}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Slipperyhc, Squiddo, Twixxel.}}$
