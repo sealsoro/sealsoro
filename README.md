@@ -7,7 +7,9 @@
   
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cee0cda9-1b34-42e7-9a3b-f9c3fdc9797f/dmo1goe-75df7c15-47e7-4e3b-a5f2-73ddd698ecf2.png/v1/fill/w_478,h_522/7092c91eeaeaf0e3c6d80f55b176f40f_removebg_preview_by_daintymwinii2_dmo1goe-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTIyIiwicGF0aCI6Ii9mL2NlZTBjZGE5LTFiMzQtNDJlNy05YTNiLWY5YzNmZGM5Nzk3Zi9kbW8xZ29lLTc1ZGY3YzE1LTQ3ZTctNGUzYi1hNWYyLTczZGRkNjk4ZWNmMi5wbmciLCJ3aWR0aCI6Ijw9NDc4In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.P6GeQM7EWKnSZ3Zn8kVBxq7vNuq_50tskqSIu0bteb8" width="401" />
 
-<img src="https://64.media.tumblr.com/efd6c66a6fc518bf1d646947826adb0f/9fea7b4689271c42-15/s400x600/e36ababcdf61c6d2510a37113efafaea37170e42.pnj" />
+<p align="center">
+  
+<img src="https://64.media.tumblr.com/8fc241cee2a6c66ea71b4169ed2799b9/454e995bdac4c429-51/s75x75_c1/5a90d514148812d75ed8d07c6e88180e43c27774.webp" width="110" />
 
 <p align="center">
   
