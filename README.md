@@ -9,7 +9,7 @@
 
 <p align="center">
   
-<img src="https://64.media.tumblr.com/8fc241cee2a6c66ea71b4169ed2799b9/454e995bdac4c429-51/s75x75_c1/5a90d514148812d75ed8d07c6e88180e43c27774.webp" width="110" />
+<img src="https://64.media.tumblr.com/8fc241cee2a6c66ea71b4169ed2799b9/454e995bdac4c429-51/s75x75_c1/5a90d514148812d75ed8d07c6e88180e43c27774.webp" width="100" />
 
 <p align="center">
   
@@ -23,9 +23,6 @@ ${\color{#C2F2D6FF}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygl
 <p align="center">
 ${\color{#C2F2D6FF}\text{DNI AT ALL: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers. }}$
   
-<p align="center">
-<img src="https://media.discordapp.net/attachments/1478063381469593640/1546489479722827856/6708d8f6ed1bce12b389c776228e2b0b.jpg?ex=6aa0a0d0&is=6a9f4f50&hm=30e3108162f0a0f9d500dfa4683cb530a3e54316b073948cb83b505bcfa47867&=&format=webp" width="209" />
-
 <p align="center">      
 <a href="https://guns.lol/playsunny">gunslol
 </a> ·
