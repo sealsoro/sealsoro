@@ -15,7 +15,10 @@
   
 ${\color{#C2F2D6FF}\text{ hi my name is soro or xes, nn are fine too. my favorite characters is Samantha Giddings, Shelly, Razzle.}}$
 <p align="center">
-  ${\color{#C2FD6FF}\text{feel free 2 int and w2i, cud freely! might resp late, also I'm a very sensitive person, so please be nice to me but I don't mind jokes.}}$
+  ${\color{#C2FD6FF}\text{feel free 2 int and w2i, cud freely! might resp late, also I'm a very sensitive person, so please be nice to me.}}$
+  
+<p align="center">
+${\color{#C2FD6FF}\text{but i dont mind jokes.}}$
   
 <p align="center">
 ${\color{#C2F2D6FF}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Squiddo, Twixxel.}}$
