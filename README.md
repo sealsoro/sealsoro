@@ -7,25 +7,31 @@
   
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/cee0cda9-1b34-42e7-9a3b-f9c3fdc9797f/dmo1goe-75df7c15-47e7-4e3b-a5f2-73ddd698ecf2.png/v1/fill/w_478,h_522/7092c91eeaeaf0e3c6d80f55b176f40f_removebg_preview_by_daintymwinii2_dmo1goe-fullview.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTIyIiwicGF0aCI6Ii9mL2NlZTBjZGE5LTFiMzQtNDJlNy05YTNiLWY5YzNmZGM5Nzk3Zi9kbW8xZ29lLTc1ZGY3YzE1LTQ3ZTctNGUzYi1hNWYyLTczZGRkNjk4ZWNmMi5wbmciLCJ3aWR0aCI6Ijw9NDc4In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.P6GeQM7EWKnSZ3Zn8kVBxq7vNuq_50tskqSIu0bteb8" width="401" />
 
-<p align="center">
-  
-<img src="https://64.media.tumblr.com/8fc241cee2a6c66ea71b4169ed2799b9/454e995bdac4c429-51/s75x75_c1/5a90d514148812d75ed8d07c6e88180e43c27774.webp" width="100" />
+<div align="center">
 
-<p align="center">
-  
-${\color{#C2F2D6FF}\text{ hi my name is soro or xes, nn are fine too. my favorite characters is Samantha Giddings, Shelly, Razzle.}}$
-<p align="center">
-  ${\color{#C2FD6FF}\text{feel free 2 int and w2i, cud freely! might resp late, also I'm a very sensitive person, so please be nice to me.}}$
-  
-<p align="center">
-${\color{#C2FD6FF}\text{nice but i dont mind jokes.}}$
-  
-<p align="center">
-${\color{#C2F2D6FF}\text{fav YTubers: FroggyDude, Laurenzside, Kubzscouts, raygloom, teamfaisal, Squiddo, Twixxel.}}$
-  
-<p align="center">
-${\color{#C2F2D6FF}\text{DNI AT ALL: Anastasia, Zoe, Ali, problematic people, darkshippers, proshippers. }}$
-  
+$${\color{#C2F2D6FF}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle.}$$
+</div>
+
+<div align="center">
+ 
+$${\color{#C2F2D6FF}feel\space free\space 2\space int\space and\space w2i,\space cud freely!\space might\space resp\space late,\space also\space I'm\space a\space very\space sensitive\space person,\space so\space please\space be\space nice\space to\space me\space but\space I\space don't\space mind\space jokes.}$$
+</div>
+
+<div align="center">
+ 
+$${\color{#C2F2D6FF}fav\space YTubers\space: FroggyDude,\space Laurenzside,\space Kubzscouts,\space raygloom,\space teamfaisal,\space Squiddo,\space Twixxel.}$$
+</div>
+
+<div align="center">
+ 
+$${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
+</div>
+
+<div align="center">
+ 
+$${\color{#C2F2D6FF}froggydude\space fictkin}$$
+</div>
+
 <p align="center">      
 <a href="https://guns.lol/playsunny">gunslol
 </a> ·
