@@ -9,7 +9,7 @@
 
 <div align="center">
 
-$${\color{#C2F2D6FF}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle.}$$
+$${\color{#C2F2D6FF}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
 </div>
 
 <div align="center">
@@ -29,7 +29,7 @@ $${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Al
 
 <div align="center">
  
-$${\color{#C2F2D6FF}froggydude\space fictkin}$$
+$${\color{#C2F2D6FF}froggydude , maya\space fictkin}$$
 </div>
 
 <p align="center">      
