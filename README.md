@@ -13,27 +13,27 @@
 
 <div align="center">
 
-$${\color{#A000C8}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
+$${\color{#BE2ED6}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
 </div>
 
 <div align="center">
  
-$${\color{#C2F2D6FF}feel\space free\space 2\space int\space and\space w2i,\space cud freely!\space might\space resp\space late,\space also\space I'm\space a\space very\space sensitive\space person,\space so\space please\space be\space nice\space to\space me\space but\space I\space don't\space mind\space jokes.}$$
+$${\color{#be2ed6}feel\space free\space 2\space int\space and\space w2i,\space cud freely!\space might\space resp\space late,\space also\space I'm\space a\space very\space sensitive\space person,\space so\space please\space be\space nice\space to\space me\space but\space I\space don't\space mind\space jokes.}$$
 </div>
 
 <div align="center">
  
-$${\color{#C2F2D6FF}fav\space YTubers\space: FroggyDude,\space Laurenzside,\space Kubzscouts,\space raygloom,\space teamfaisal,\space Squiddo,\space Twixxel.}$$
+$${\color{#be2ed6}fav\space YTubers\space: FroggyDude,\space Laurenzside,\space Kubzscouts,\space raygloom,\space teamfaisal,\space Squiddo,\space Twixxel.}$$
 </div>
 
 <div align="center">
  
-$${\color{#B200ED}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
+$${\color{#BE2ED6}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
 </div>
 
 <div align="center">
  
-$${\color{#C2F2D6FF}froggydude , maya\space fictkin}$$
+$${\color{#BE2ED6}froggydude , maya\space fictkin}$$
 </div>
 
 <p align="center">      
