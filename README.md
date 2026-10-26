@@ -13,7 +13,7 @@
 
 <div align="center">
 
-$${\color{#C2F2D6FF}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
+$${\color{#A000C8}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
 </div>
 
 <div align="center">
@@ -28,7 +28,7 @@ $${\color{#C2F2D6FF}fav\space YTubers\space: FroggyDude,\space Laurenzside,\spac
 
 <div align="center">
  
-$${\color{#C2F2D6FF}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
+$${\color{#B200ED}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
 </div>
 
 <div align="center">
