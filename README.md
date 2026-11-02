@@ -33,7 +33,7 @@ $${\color{#356034}froggydude \space fictkin}$$
 <summary> OOMF ! ^^ </summary>
 
 [Amelia my sister](https://github.com/entua108)  ⁠☆ 
-[that one friend who keeps changing their username](https://github.com/fizfies)  ⁠☆ 
+[fizfies](https://github.com/fizfies)  ⁠☆ 
 [1# ragebaiter](https://github.com/suguruberry) ⁠☆ 
 [ALEXX](https://github.com/alexstikks) ⁠☆ 
 [SOFIA](https://github.com/FAITHFUL-H3ART) ⁠☆ 
