@@ -30,6 +30,19 @@ $${\color{#356034}froggydude \space fictkin}$$
   
 
  <details>
-<summary> ℴℴ𝓂𝒻 </summary>
-.
+<summary> OOMF ! ^^ </summary>
+
+[entua108](https://github.com/entua108) 
+
+[fizfies](https://github.com/fizfies)
+
+[suguruberry](https://github.com/suguruberry) ⁠☆ 
+[alexstikks](https://github.com/alexstikks) ⁠☆ 
+[FAITHFUL-H3ART](https://github.com/FAITHFUL-H3ART) ⁠☆ 
+[CamilleMcFlurry](https://github.com/CamilleMcFlurry) ☆ 
+[CosmoThePastryy](https://github.com/CosmoThePastryy) ☆ 
+[Cakeifyw](https://github.com/Cakeifyw)
+
+
+
 </details>
