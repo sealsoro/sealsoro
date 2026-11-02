@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv"/>
   
- <img src="https://64.media.tumblr.com/5e756e4b4602d5dc6150d85a71a599f0/c90d7ecb2aaf8dca-98/s1280x1920/294204d8e9c22767f8630c2a07c74d29aa7960bc.gifv" />
+ <img src="https://64.media.tumblr.com/5e756e4b4602d5dc6150d85a71a599f0/c90d7ecb2aaf8dca-98/s1280x1920/294204d8e9c22767f8630c2a07c74d29aa7960bc.gifv"/>
 
 <p align="center">
   
@@ -13,27 +13,27 @@
 
 <div align="center">
 
-$${\color{#ca5cdd}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
+$${\color{#356034}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
 </div>
 
 <div align="center">
  
-$${\color{#ca5cdd}feel\space free\space 2\space int\space and\space w2i,\space cud freely!\space might\space resp\space late,\space also\space I'm\space a\space very\space sensitive\space person,\space so\space please\space be\space nice\space to\space me\space but\space I\space don't\space mind\space jokes.}$$
+$${\color{#4e4550}feel\space free\space 2\space int\space and\space w2i,\space cud freely!\space might\space resp\space late,\space also\space I'm\space a\space very\space sensitive\space person,\space so\space please\space be\space nice\space to\space me\space but\space I\space don't\space mind\space jokes.}$$
 </div>
 
 <div align="center">
  
-$${\color{#ca5cdd}fav\space YTubers\space: FroggyDude,\space Laurenzside,\space Kubzscouts,\space raygloom,\space teamfaisal,\space Squiddo,\space Twixxel.}$$
+$${\color{#356034}fav\space YTubers\space: FroggyDude,\space Laurenzside,\space Kubzscouts,\space raygloom,\space teamfaisal,\space Squiddo,\space Twixxel.}$$
 </div>
 
 <div align="center">
  
-$${\color{#ca5cdd}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
+$${\color{#4e4550}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,\space problematic\space people,\space darkshippers,\space proshippers.}$$
 </div>
 
 <div align="center">
  
-$${\color{#ca5cdd}froggydude \space fictkin}$$
+$${\color{#356034}froggydude \space fictkin}$$
 </div>
 
 <p align="center">      
@@ -43,8 +43,6 @@ $${\color{#ca5cdd}froggydude \space fictkin}$$
   
 <img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv" />
 
-<p align="center">
- readme made by <a href="https://github.com/nyankit"> nyankit !!</a> (GIFT) ^_^
   
  <img src="https://64.media.tumblr.com/1e9a1a86e02105253d4057c868438ca2/6b6cef5fada6f113-fe/s2048x3072/ed6b7e0b237418e5baafed62eff08ee8dd0ab81f.gifv" />
  
