@@ -32,10 +32,8 @@ $${\color{#356034}froggydude \space fictkin}$$
  <details>
 <summary> OOMF ! ^^ </summary>
 
-[entua108](https://github.com/entua108) 
-
-[fizfies](https://github.com/fizfies)
-
+[entua108](https://github.com/entua108)  ⁠☆ 
+[fizfies](https://github.com/fizfies)  ⁠☆ 
 [suguruberry](https://github.com/suguruberry) ⁠☆ 
 [alexstikks](https://github.com/alexstikks) ⁠☆ 
 [FAITHFUL-H3ART](https://github.com/FAITHFUL-H3ART) ⁠☆ 
