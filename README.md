@@ -32,14 +32,14 @@ $${\color{#356034}froggydude \space fictkin}$$
  <details>
 <summary> OOMF ! ^^ </summary>
 
-[entua108](https://github.com/entua108)  ⁠☆ 
-[fizfies](https://github.com/fizfies)  ⁠☆ 
-[suguruberry](https://github.com/suguruberry) ⁠☆ 
-[alexstikks](https://github.com/alexstikks) ⁠☆ 
-[FAITHFUL-H3ART](https://github.com/FAITHFUL-H3ART) ⁠☆ 
-[CamilleMcFlurry](https://github.com/CamilleMcFlurry) ☆ 
-[CosmoThePastryy](https://github.com/CosmoThePastryy) ☆ 
-[Cakeifyw](https://github.com/Cakeifyw)
+[Amelia my sister](https://github.com/entua108)  ⁠☆ 
+[that one friend who keeps changing their username](https://github.com/fizfies)  ⁠☆ 
+[1# ragebaiter](https://github.com/suguruberry) ⁠☆ 
+[ALEXX](https://github.com/alexstikks) ⁠☆ 
+[SOFIA](https://github.com/FAITHFUL-H3ART) ⁠☆ 
+[McDonald's](https://github.com/CamilleMcFlurry) ☆ 
+[KAII,,](https://github.com/CosmoThePastryy) ☆ 
+[UGLY STUPID DUMBASS /J](https://github.com/Cakeifyw)
 
 
 
