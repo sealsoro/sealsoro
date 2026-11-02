@@ -28,3 +28,8 @@ $${\color{#356034}froggydude \space fictkin}$$
 </a> ·
   <a href="https://soro.atabook.org">atabook !!</a> 
   
+
+ <details>
+<summary> ℴℴ𝓂𝒻 </summary>
+.
+</details>
