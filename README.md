@@ -1,4 +1,4 @@
-⍣ .  ![GIF]()
+![GIF](0f3c4eac19f34c2aa473304750141357.gif)
 
 $${\color{#356034}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
 </div>
