@@ -44,3 +44,5 @@ $${\color{#356034}Froggydude /Aya.\space fictkin}$$
 
 
 </details>
+
+<img width="202" height="201" alt="2de399a518486b7de2ecee8d55f1f0c7" src="https://github.com/user-attachments/assets/23ed6de5-b5fa-4205-a48a-9e2680aa690c" />
