@@ -1,6 +1,6 @@
 ![GIF](0f3c4eac19f34c2aa473304750141357.gif)
 
-$${\color{#356034}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya.}$$
+$${\color{#356034}hi\space my\space name\space is\space soro\space or\space xes,\space nn\space are\space fine\space too.\space my\space favorite\space characters\space is\space Samantha\space Giddings,\space Shelly,\space Razzle, \space Maya, \space Aya.}$$
 </div>
 
 <div align="center">
@@ -20,7 +20,7 @@ $${\color{#4e4550}DNI\space AT\space ALL:\space Anastasia,\space Zoe,\space Ali,
 
 <div align="center">
  
-$${\color{#356034}froggydude \space fictkin}$$
+$${\color{#356034}Froggydude /Aya.\space fictkin}$$
 </div>
 
 <p align="center">      
